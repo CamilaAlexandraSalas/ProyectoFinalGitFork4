@@ -76,5 +76,28 @@ Aquí se combinan los dos elementos: el jugador debe de seguir el ritmo si quier
 
 #### Atentamente: alguien que ama los juegos de ritmo
 
-# Noras compañeros Protecsa
+# Notas compañeros Protecsa
 1. ¡Hola! Soy *Jair* y a mí también me encantan los juegos de ritmo, aunque prefiero los japoneses como los de Hatsune Miku.
+
+--- 
+### Hola bebé, Soy **Karla**, te amo <3 MUACK. ♡✧˚ ༘ ⋆｡♡˚
+```
+⬜⬜⬜⬜⬜⬜⬜⬜⬜⬜⬜⬜⬜⬜⬜
+⬛⬛⬛⬛⬜⬜⬛⬛⬛⬜⬛⬛⬛⬜⬜
+⬜⬛⬛⬜⬜⬛🟥🟥🟥⬛🟥🟥🟥⬛⬜
+⬜⬛⬛⬜⬜⬛🟥🟥🟥🟥🟥🟥🟥⬛⬜
+⬜⬛⬛⬜⬜⬛🟥🟥🟥🟥🟥🟥🟥⬛⬜
+⬜⬛⬛⬜⬜⬜⬛🟥🟥🟥🟥🟥⬛⬜⬜
+⬜⬛⬛⬜⬜⬜⬜⬛🟥🟥🟥⬛⬜⬜⬜
+⬛⬛⬛⬛⬜⬜⬜⬜⬛⬛⬛⬜⬜⬜⬜
+⬜⬜⬜⬜⬜⬜⬜⬜⬜⬜⬜⬜⬜⬜⬜
+⬜⬜⬛⬜⬜⬜⬛⬜⬜⬜⬜⬜⬜⬜⬜
+⬜⬜⬜⬛⬜⬛⬜⬜⬜⬜⬜⬜⬜⬜⬜
+⬜⬜⬜⬜⬛⬜⬜⬛⬛⬛⬜⬛⬜⬛⬜
+⬜⬜⬜⬜⬛⬜⬜⬛⬜⬛⬜⬛⬜⬛⬜
+⬜⬜⬜⬜⬛⬜⬜⬛⬜⬛⬜⬛⬜⬛⬜
+⬜⬜⬜⬜⬛⬜⬜⬛⬛⬛⬜⬛⬛⬛⬜ 
+｡ﾟﾟ･｡･ﾟﾟ｡ 
+ﾟ。ⁱ ʷⁱˡˡ ᵃˡʷᵃʸˢ ˡᵒᵛᵉ ʸᵒᵘ  
+　ﾟ･｡･ﾟ
+```
