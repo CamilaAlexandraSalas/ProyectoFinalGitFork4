@@ -75,3 +75,6 @@ Aquí se combinan los dos elementos: el jugador debe de seguir el ritmo si quier
 - Hay muchos juegos importantes de ritmo que no coloqué como Project Diva o Osu! debido a que son juegos donde no estoy experimentado y me gusta colocar joyas _ocultas_
 
 #### Atentamente: alguien que ama los juegos de ritmo
+
+# Noras compañeros Protecsa
+1. ¡Hola! Soy *Jair* y a mí también me encantan los juegos de ritmo, aunque prefiero los japoneses como los de Hatsune Miku.
